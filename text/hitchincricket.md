@@ -1,0 +1,1 @@
+Hitchin' Cricket is an American rock band based in the rural hills of Northeastern Pennsylvania. Their live performances generate the kind of buzz and hoopla that only can surround the kind of talent that is on the verge of national success.

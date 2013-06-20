@@ -1,0 +1,1 @@
+John Quinn from the Band "Mo' Ball's" & "Q-Ball's", plays Classic songs from the 70's up to Today.  John has been playing in this area for 35 years and plays in various duos, one of which is with the talented young woman, Asialena.

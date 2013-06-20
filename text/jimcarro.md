@@ -1,0 +1,1 @@
+Jim Carro is a troubadour. He’s accompanied many of the areas musicians with his acoustic guitar and harmonica including blues great Clarence Spady.   Performing classic songs by Bob Dylan, Neil Young and many others, he can be found performing at any number of clubs in Northeastern PA.

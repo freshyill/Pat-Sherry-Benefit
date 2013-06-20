@@ -1,0 +1,1 @@
+Father Paul has been performing on stage since 1974 as a musician, actor, comedian and now comedy show producer. Whether the good Father is playing his accordion or guitar or preaching his "gospel" with a drink in his hand, you can be certain you will be in for a great time!

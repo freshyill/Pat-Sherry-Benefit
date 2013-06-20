@@ -1,0 +1,1 @@
+Got your mojo working? You will for sure after injecting some energy only a live band can bring to your venue, event or party. Whether Mojo is playing a festival, party, wedding, local bar or right in your backyard they bring the musical professionalism that only seasoned musicians and a seasoned band can bring. No event is too large or too small.

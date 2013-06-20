@@ -1,0 +1,1 @@
+Phyllis Hopkins’ Electric Trio performs an eclectic mix of blues, originals, classic and modern rock. Combined with the dynamic rhythm section of Nolan Ayres and Julio Caprari, the band keeps people talking long after the show is over.

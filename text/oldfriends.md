@@ -1,0 +1,1 @@
+Old Friends' music consists of Bluegrass, Folk, Rock, Southern Rock, Country and Swing, played in often in their own arrangement and style. Old Friends can be found playing in Northeastern PA at private parties, clubs and Summer/Fall festivals. They have played in clubs in New York City as well as the Battle of the Bands in Nashville.

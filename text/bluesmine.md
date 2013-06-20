@@ -1,0 +1,1 @@
+The Blues Mine consists of journeyman musicians with a wide range of musical experiences including rock, blues, funk, soul, jazz and classical music.  The band has Matt Bennick on guitar and vocals, Rick Belza on keys and vocals, Bill Coleman on bass and Pat Marcinko on drums.
